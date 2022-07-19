@@ -10,12 +10,12 @@ Anyways, if you wanna contact me you can do it via:
 - [Twitter](https://twitter.com/beriekhoi)
 - [Instagram](https://instagram.com/hnngnynngg)
 - [E-mail](mailto:gabrojaslopez@gmail.com)
-- Discord => Racoon enjoyer#6973
+- Discord => Avriakilë#5622
 
 
 
 
-I know about:
+I know:
 - HTML
 - CSS
 - Javascript (websites and Node.js)
