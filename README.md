@@ -7,10 +7,9 @@ Hi there, I guess. I am just another programmer in Github, nothing more nothing 
 
 Anyways, if you wanna contact me you can do it via:
 
-- [Twitter](https://twitter.com/beriekhoi)
-- [Instagram](https://instagram.com/hnngnynngg)
+- [Instagram](https://instagram.com/zbronikov)
 - [E-mail](mailto:gabrojaslopez@gmail.com)
-- Discord => Avriakilë#5622
+- Discord => Stlako#5622
 
 
 
