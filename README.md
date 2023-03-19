@@ -5,11 +5,7 @@ Hi there, I guess. I am just another programmer in Github, nothing more nothing 
 
 
 
-Anyways, if you wanna contact me you can do it via:
-
-- [Instagram](https://instagram.com/zbronikov)
-- [E-mail](mailto:gabrojaslopez@gmail.com)
-- Discord => Stlako#5622
+Anyways, if you wanna contact me, please send me an [e-mail](mailto:sokopy@elude.in)
 
 
 
