@@ -5,7 +5,7 @@ Hi there, I guess. I am just another programmer in Github, nothing more nothing 
 
 
 
-Anyways, if you wanna contact me, please send me an [e-mail](mailto:sokopy@elude.in)
+Anyways, if you wanna contact me, please send me an [e-mail](mailto:sokopy@mail2tor.com)
 
 
 
