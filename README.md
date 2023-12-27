@@ -1,7 +1,7 @@
 Self-taught coder without degree or some stuff like that, but there we go!
 
 
-
+Professional Portfolio: https://sokopy.github.io/
 
 
 Anyways, if you wanna contact me, please send me an [e-mail](mailto:sokopy@mail2tor.com)
